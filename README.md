@@ -1,5 +1,5 @@
 # ferlx516.github.io
-luis.ferreyroulloa@gmail.com • +52 3314487994 • www.linkedin.com/in/luis-ferreyro-ulloa 
+luis.ferreyroulloa@gmail.com (luis.ferreyroulloa@gmail.com) • +52 3314487994 • www.linkedin.com/in/luis-ferreyro-ulloa 
 PROFESSIONAL SUMMARY 
 
 
